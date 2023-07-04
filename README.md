@@ -31,3 +31,8 @@ SSRDOG 机场提供精品专线加速服务，常用地区 V2ray 高速节点。
 |一次性|-|-|-|￥220|￥400|
 
 > 一次性包无有效期，用完为止。
+
+
+## SSRDOG下载
+
+做的比较好的机场都会有专版软件下载，SSRDOG也一样：[Windows](https://wwmy.lanzoum.com/iWlbw0xq6lhe)、[Mac](https://wwmy.lanzoum.com/irq5p0xq426h)、[Android](https://wwmy.lanzoum.com/inWrJ0xpgkfa)。
