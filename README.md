@@ -1,6 +1,6 @@
 # SSRDOG官网，SSRDOG优惠券，SSRDOG怎么样，SSRDOG下载
 
-最新地址：[ssrdog111.com](https://dog.ssrdog111.com/#/register?code=mKVdw6qs)、[dog.ssrdog.cc](https://dog.ssrdog111.com/#/register?code=mKVdw6qs)、[ssrdog111.com](https://dog.ssrdog.vip/#/register?code=mKVdw6qs)、
+最新地址：[ssrdog111.com](https://dog.ssrdog111.com/#/register?code=mKVdw6qs)、[dog.ssrdog.cc](https://dog.ssrdog111.com/#/register?code=mKVdw6qs)、[dog.ssrdog.vip](https://dog.ssrdog.vip/#/register?code=mKVdw6qs)、
 
 ## SSRDOG简介
 
